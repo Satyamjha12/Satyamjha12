@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **satyamjha847101@gmail.com**
 
-- ⚡ Fun fact **I Think I am Funny**
+- ⚡ Fun fact ** I am Funny**
 
 
 ## 🌐 Socials:
